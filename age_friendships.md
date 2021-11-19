@@ -7,3 +7,5 @@ In the first place, friendships usually matter the most during youth, while bein
 However, during adulthood, friendships may carry a lesser role. Because of the responsibilities of being an adult by taking care of your family, having a full-time job and managing possible loans for houses, there is not a lot of time to take care of friends and meet up with them, maybe seeing them only every other week. Because of the built-up stress of having an adult life and having no time for yourself, even if new friendships are formed during work or you see older friends again, they are not as close as those in your youth, because they each have their responsibilities and problems like you.  
   
 In conclusion, it is fair to say that during your youth, friends play a vital role in life but their importance often diminishes with the responsibilities of adult life.
+
+### Number of words: 264.
